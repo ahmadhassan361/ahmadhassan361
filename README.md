@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻I'm a passionate Software Engineer. <br>💼I've 5+ years professional experience.<br>🤹I've strong skills in Software Development.<br>🏡I'm an extreme workaholic.<br> 💬I've strong communication skills.<br>🏃Work with American and European clients.
+👨‍💻I'm a passionate Software Engineer. <br>💼I've 7+ years professional experience.<br>🤹I've strong skills in Software Development.<br>🏡I'm an extreme workaholic.<br> 💬I've strong communication skills.<br>🏃Work with American and European clients.
 
 
 ## 🌐 Socials:
